@@ -1,1 +1,1 @@
-Link do canva Artigo e Seminário: https://www.canva.com/design/DAGk1oqFdPI/-qUi_-2rmoFNEeUzPvJ1UQ/edit?utm_content=DAGk1oqFdPI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+Link do canva Artigo e Seminário: https://www.canva.com/design/DAGueP-BNyA/ewPO3V_yxYI61KIiNxqhIg/edit?utm_content=DAGueP-BNyA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
